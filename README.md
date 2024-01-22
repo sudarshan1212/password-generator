@@ -1,1 +1,1 @@
-                                               https://password-generator-sudarshan.netlify.app/
+                                              sudarshansam12@yahoo.com
